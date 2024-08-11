@@ -1,3 +1,7 @@
+estouaprendendo
+
+
+
 - 👋 Hi, I’m @Lucianasouzabarbosa
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
